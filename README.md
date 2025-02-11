@@ -1,3 +1,3 @@
-IM ONLY HUMAN AFTERALL IM ONLY HUMAN AFTER ALL
+太子殿下 .
 
-literally always in the sonic area
+![image](https://github.com/user-attachments/assets/f5334c69-92cc-4816-8169-4d9e1c1ff63d)
